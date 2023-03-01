@@ -12,4 +12,4 @@ https://t.me/NatMorV
 
 **Обучение:**
 
-![Image alt](https://drive.google.com/file/d/1irrKsY7_k7vb6XJNyJMwKuVeTlmTfNIT/view?usp=share_link)
+![Image alt](https://github.com/NataMorozova/NataMorozova/blob/main/Karpov%20Courses%20Certificate.pdf)
